@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on anything?
 - 📫 How to reach me: rubgarcialopez@gmail.com
 - 😄 Pronouns: Stupid shit
-- ⚡ Fun fact: Im a happy stupid shit
+- ⚡ Fun fact: Im a happy (and sometimes funny) stupid shit
